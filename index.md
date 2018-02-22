@@ -1,9 +1,7 @@
 ## 2018 Book Club Reading
 
 | **Date** |  **Book** | **Reviewer** |**Host**| **Type** |
-
 | --- | --- | ---- | ----| ---- |
-
 | 21 March | [*The Descent of Man*](https://www.amazon.com/Descent-Man-Grayson-Perry/dp/0143131656/ref=sr_tc_2_1?ie=UTF8&qid=1519258957&sr=1-2-ent&dpID=41bOPe%252BnFAL&preST=_SY291_BO1,204,203,200_QL40_&dpSrc=srch) by Grayson Perry | Janeane|  Marion B  | NF | 
 
 | 18 April  |  [*Lincoln in the Bardo*](https://www.amazon.com/Lincoln-Bardo-Novel-George-Saunders/dp/0812985400/ref=sr_1_1?s=books&ie=UTF8&qid=1519259476&sr=1-1&keywords=Lincoln+in+the+Bardo&dpID=619U7Ja11RL&preST=_SY291_BO1,204,203,200_QL40_&dpSrc=srch) by George Saunders |  Trish S | Jo  | F | 
