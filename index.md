@@ -1,6 +1,6 @@
 ## 2018 Book Club Reading
 
-​| **Date** |  **Book** | **Reviewer** |**Host**| **Type** |
+| **Date** |  **Book** | **Reviewer** |**Host**| **Type** |
 
 | --- | --- | ---- | ----| ---- |
 
@@ -8,7 +8,7 @@
 
 | 18 April  |  [*Lincoln in the Bardo*](https://www.amazon.com/Lincoln-Bardo-Novel-George-Saunders/dp/0812985400/ref=sr_1_1?s=books&ie=UTF8&qid=1519259476&sr=1-1&keywords=Lincoln+in+the+Bardo&dpID=619U7Ja11RL&preST=_SY291_BO1,204,203,200_QL40_&dpSrc=srch) by George Saunders |  Trish S | Jo  | F | 
 
-| 16 May |  [*Into Africa: : The Epic Adventures of Stanley & Livingstone*](https://www.amazon.com/Into-Africa-Adventures-Stanley-Livingstone/dp/0767910745/ref=sr_1_1?s=books&ie=UTF8&qid=1519259511&sr=1-1&keywords=into+africa+the+epic+adventures+of+stanley+and+livingstone&dpID=61f2Xscrl-L&preST=_SY291_BO1,204,203,200_QL40_&dpSrc=srch) by Martin Dugard |   Elizabeth | Marian V |  NF |  
+| 16 May |  [*Into Africa: The Epic Adventures of Stanley & Livingstone*](https://www.amazon.com/Into-Africa-Adventures-Stanley-Livingstone/dp/0767910745/ref=sr_1_1?s=books&ie=UTF8&qid=1519259511&sr=1-1&keywords=into+africa+the+epic+adventures+of+stanley+and+livingstone&dpID=61f2Xscrl-L&preST=_SY291_BO1,204,203,200_QL40_&dpSrc=srch) by Martin Dugard |   Elizabeth | Marian V |  NF |  
 
 | 20 June |   [*The Art of Rivalry: Four Friendships, Betrayals, and Breakthroughs in Modern Art*](https://www.amazon.com/Art-Rivalry-Friendships-Betrayals-Breakthroughs/dp/0812985079/ref=sr_1_1?s=books&ie=UTF8&qid=1519259543&sr=1-1&keywords=Art+of+Rivalry+smee) by Sebastian Smee |  Judy  | Belinda | NF | 
 
