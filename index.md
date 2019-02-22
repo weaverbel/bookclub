@@ -1,3 +1,19 @@
+## 2019 Book Club Reading
+
+| **Date** |  **Book** | **Reviewer** |**Host**| **Type** |
+| :---: | --- | :---: | :---:| :---: |
+| 20 March | *Boy Swallows Universe* by Trent Dalton | Sue|  Judy  | NF | 
+| 10 April | *The Feather Thief: the Natural History Heist of the Century* by Kirk Wallace Johnson | Elizabeth    |  Trish R | NF | 
+| 15 May |  *Books that saved my life: Reading for Wisdom, Solace and Pleasure* by Michael McGirr |  Janeane | Jane |  NF |  
+| 19 June |  *Home Fire* by Kamila Shamsie |  Trish S  | Bev | F | 
+| 17 July | *The Strange Death of Europe: Immigration, Identity, Islam* by Douglas Murray  | Marion B | Gabrielle |  NF | 
+| 21 Aug |  *A Princess Remembers: The Memoirs of the Maharani of Jaipur* by Gayatri Devi |  Christine C |   Amanda  | NF | 
+|18 Sept | *Asymmetry* by Lisa Halliday |  Bev |   Belinda |  F | 
+| 16 Oct | *Bridge of Clay* by Markus Zusak |   Angela  | Gabrielle |  F | 
+| 20 Nov|  *Warlight* by Michael Ondaatje |   Belinda |   Trish S or Christine M | F | 
+| 7 Dec |     Christmas Party at  | Booker: Elizabeth | This is a Saturday night | Put it in the diary |
+
+
 ## 2018 Book Club Reading
 
 | **Date** |  **Book** | **Reviewer** |**Host**| **Type** |
