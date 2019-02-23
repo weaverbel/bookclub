@@ -11,7 +11,7 @@
 |18 Sept | *[Asymmetry](https://www.amazon.com/Asymmetry-Novel-Lisa-Halliday/dp/150116676X)* by Lisa Halliday |  Bev |   Belinda |  F | 
 | 16 Oct | *[Bridge of Clay](https://www.panmacmillan.com.au/9781760559922/)* by Markus Zusak |   Angela  | Gabrielle |  F | 
 | 20 Nov|  *[Warlight](https://www.penguinrandomhouse.com/books/567854/warlight-by-michael-ondaatje/9780525562962/)* by Michael Ondaatje |   Belinda |   Trish S or Christine M | F | 
-| 7 Dec |     Christmas Party at  | Booker: Elizabeth | This is a Saturday night | Put it in the diary |
+| 14 Dec |     Christmas Party at Enoteca | Booker: Elizabeth | This is a Saturday night | $105 per head |
 
 
 ## 2018 Book Club Reading
