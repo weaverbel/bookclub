@@ -13,11 +13,12 @@
 | 20 Nov|  *[Warlight](https://www.penguinrandomhouse.com/books/567854/warlight-by-michael-ondaatje/9780525562962/)* by Michael Ondaatje |   Belinda |   Trish S or Christine M | F | 
 | 14 Dec |     Christmas Party at Enoteca | Booker: Elizabeth | This is a Saturday night | $105 per head |
 
-Off-piste - some other ideas for 2019 reading from Belinda:
+**Off-piste - some other ideas for 2019 reading from Belinda:**
 
 - *The Age of Surveillance Capitalism: The Fight for a Human Future at the New Frontier of Power* by Shoshana Zuboff. Just read a great review of this in last week's *SMH* Good Weekend section.
 - *Daphne du Maurier and her Sisters* by Jane Dunn. This was a *cracker*!
-
+- *Done: The Secret Deals that are Changing Our World* by Jacques Peretti. Eye-opening!
+- *Thomas Cromwell: A Life* by Diarmaid MacCulloch. New bio - very detailed - maybe too much so for some.
 
 ## 2018 Book Club Reading
 
