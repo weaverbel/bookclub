@@ -7,7 +7,7 @@
 | 15 May |  *[Books That Saved My Life: Reading for Wisdom, Solace and Pleasure](https://www.textpublishing.com.au/books/books-that-saved-my-life-reading-for-wisdom-solace-and-pleasure)* by Michael McGirr |  Janeane | Jane |  NF |  
 | 19 June |  *[Home Fire](https://www.bloomsbury.com/au/home-fire-9781408886755/)* by Kamila Shamsie |  Trish S  | Bev | F | 
 | 17 July | *[The Strange Death of Europe: Immigration, Identity, Islam](https://www.amazon.com.au/Strange-Death-Europe-Immigration-Identity/dp/1472942248)* by Douglas Murray  | Marion B | Gabrielle |  NF | 
-| 21 Aug |  *[A Princess Remembers: The Memoirs of the Maharani of Jaipur](https://www.amazon.com/Princess-Remembers-Memoirs-Maharani-Jaipur/dp/8171673074)* by Gayatri Devi |  Christine C |   Amanda  | NF | 
+| 21 Aug |  *[A Princess Remembers: The Memoirs of the Maharani of Jaipur](https://www.amazon.com/Princess-Remembers-Memoirs-Maharani-Jaipur/dp/8171673074)* by Gayatri Devi |  Judy |   Amanda  | NF | 
 |18 Sept | *[Asymmetry](https://www.amazon.com/Asymmetry-Novel-Lisa-Halliday/dp/150116676X)* by Lisa Halliday |  Bev |   Belinda |  F | 
 | 16 Oct | *[Bridge of Clay](https://www.panmacmillan.com.au/9781760559922/)* by Markus Zusak |   Angela  | Gabrielle |  F | 
 | 20 Nov|  *[Warlight](https://www.penguinrandomhouse.com/books/567854/warlight-by-michael-ondaatje/9780525562962/)* by Michael Ondaatje |   Belinda |   Trish S or Christine M | F | 
