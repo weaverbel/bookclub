@@ -9,7 +9,7 @@
 | 15 July | *Killers of the Flower Moon* by David Grann | Chris C | Amanda |  History | 
 | 19 Aug |  *Fleishman Is in Trouble* by Taffy Brodesser-Akner |  Marion B |   Trish S  | Fiction | 
 | 16 Sept | *Maus* by Art Spiegelman + *Can't We Talk about Something More Pleasant?* by Roz Chast |  Trish S |   Gabrielle |  Graphic works| 
-| 21 Oct | *The Anarchy* by Willaim Dalrymple |   Christine M  |  Janeane |  History | 
+| 21 Oct | *The Anarchy* by William Dalrymple |   Christine M  |  Janeane |  History | 
 | 18 Nov|  *Where the Crawdads Sing* by Delia Owens |   Sue |   Marian V | Fiction | 
 | 12 Dec |     Christmas Party at Enoteca | Booker: Belinda | This is a Saturday night | Cost TBD |
 
@@ -27,7 +27,7 @@
 | *The Bass Rock* | Evie Wyld	|	Belinda	| Evie Wyld won the Miles Franklin for an earlier book *All the Birds, Singing*. | 
 | *Three Women* | Lisa Taddeo | Gabrielle	| An extraordinary offering, according to Elizabeth Gilbert, author of *Eat Pray Love*. |
 | *The Sixteen Trees of the Somme* | Lars Mytting	| Belinda	| A novel about the unravelling of a mystery about the deaths of the main character's parents. |
-
+| *Evicted* | Matthew Desmond | Marion B?	| Offers a dark mirror of middle-class America’s obsession with real estate, laying bare the workings of the low end of the market, where evictions have become just another part of an often lucrative business model.|
 
 ## 2019 Book Club Reading
 
