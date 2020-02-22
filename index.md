@@ -1,3 +1,34 @@
+## 2020 Book Club Reading
+
+| **Date** |  **Book** | **Reviewer** |**Host**| **Type** |
+| :---: | --- | :---: | :---:| :---: |
+| 18 March | *Educated* by Tara Westover | Janeane |  Jo  | Memoir | 
+| 15 April | *The Return* by Hisham Matar  | Elizabeth |  Trish R | Memoir | 
+| 20 May |  *Last Boat out of Shanghai* by Helen Zia |  Jo | Belinda |  History |  
+| 17 June |  *The Children's House* by Alice Nelson |  Amanda?  | Angela? | Fiction | 
+| 15 July | *Killers of the Flower Moon* by David Grann | Chris C | Amanda |  History | 
+| 19 Aug |  *Fleishman Is in Trouble* by Taffy Brodesser-Akner |  Marion B |   Trish S  | Fiction | 
+| 16 Sept | *Maus* by Art Spiegelman + *Can't We Talk about Something More Pleasant?* by Roz Chast |  Trish S |   Gabrielle |  Graphic works| 
+| 21 Oct | *The Anarchy* by Willaim Dalrymple |   Christine M  |  Janeane |  History | 
+| 18 Nov|  *Where the Crawdads Sing* by Delia Owens |   Sue |   Marian V | Fiction | 
+| 12 Dec |     Christmas Party at Enoteca | Booker: Belinda | This is a Saturday night | Cost TBD |
+
+
+**Off-piste - other ideas for 2020 reading tnhat did not make the cut:**
+
+| Book |  Author |	Proposed by	| Info |
+| :---: | --- | :---: | :---:| 
+| *Unsheltered*  |  Barbara Kingsolver  |	Belinda	| An Amazon Best Book of October 2018. |
+| *The Secret Scripture*  |  Sebastian Barry  |	Belinda, Angela, Gabrielle	| Beautifully written. Best book of 2019 for Belinda.  |
+| *The Undoing Project* | Michael Lewis |	Janeane	| A book about the origins of psychology. |
+| *Stalingrad* | Vassily Grossman	| Gabrielle	| A work of fiction along the lines of a modern day *War and Peace*.|
+| *The Weekend* | Charlotte Wood	| Sue |	A novel about three women in their sixties who are clearing out the house of a friend who has died.|
+| *Bruny* | Heather Rose	|Janeane?	| Dystopian novel set in the future in Tassie.|
+| *The Bass Rock* | Evie Wyld	|	Belinda	| Evie Wyld won the Miles Franklin for an earlier book *All the Birds, Singing*. | 
+| *Three Women* | Lisa Taddeo | Gabrielle	| An extraordinary offering, according to Elizabeth Gilbert, author of *Eat Pray Love*. |
+| *The Sixteen Trees of the Somme* | Lars Mytting	| Belinda	| A novel about the unravelling of a mystery about the deaths of the main character's parents. |
+
+
 ## 2019 Book Club Reading
 
 | **Date** |  **Book** | **Reviewer** |**Host**| **Type** |
