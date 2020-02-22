@@ -28,6 +28,7 @@
 | *Three Women* | Lisa Taddeo | Gabrielle	| An extraordinary offering, according to Elizabeth Gilbert, author of *Eat Pray Love*. |
 | *The Sixteen Trees of the Somme* | Lars Mytting	| Belinda	| A novel about the unravelling of a mystery about the deaths of the main character's parents. |
 | *Evicted* | Matthew Desmond | Marion B?	| Offers a dark mirror of middle-class America’s obsession with real estate, laying bare the workings of the low end of the market, where evictions have become just another part of an often lucrative business model.|
+| *The Dutch House* | Ann Patchett | Sue | *The Dutch House* is the story of a 'modern family', as this was the era when families started to become fractured and step-parents and step-siblings became more prevalent. |
 
 ## 2019 Book Club Reading
 
