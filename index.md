@@ -5,7 +5,7 @@
 | 18 March | *Educated* by Tara Westover | Janeane |  Jo  | Memoir | 
 | 15 April | *The Return* by Hisham Matar  | Elizabeth |  Trish R | Memoir | 
 | 20 May |  *Last Boat out of Shanghai* by Helen Zia |  Jo | Belinda |  History |  
-| 17 June |  *The Children's House* by Alice Nelson |  Amanda?  | Angela? | Fiction | 
+| 17 June |  No book |  n/a  | Christine M | Fiction | 
 | 15 July | *Killers of the Flower Moon* by David Grann | Chris C | Amanda |  History | 
 | 19 Aug |  *The Children's House* by Alice Nelson |  Amanda |   Trish S  | Fiction | 
 | 16 Sept | *Maus* by Art Spiegelman + *Can't We Talk about Something More Pleasant?* by Roz Chast |  Trish S |   Gabrielle |  Graphic works| 
