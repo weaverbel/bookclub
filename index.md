@@ -7,7 +7,7 @@
 | 20 May |  *Last Boat out of Shanghai* by Helen Zia |  Jo | Belinda |  History |  
 | 17 June |  No book |  n/a  | Christine M | Fiction | 
 | 15 July | *Killers of the Flower Moon* by David Grann | Chris C | Amanda |  History | 
-| 19 Aug |  *The Children's House* by Alice Nelson |  Amanda |   Trish S  | Fiction | 
+| 19 Aug |  *The Children's House* by Alice Nelson |  Amanda |   Bev  | Fiction | 
 | 16 Sept | *Maus* by Art Spiegelman + *Can't We Talk about Something More Pleasant?* by Roz Chast |  Trish S |   Gabrielle |  Graphic works| 
 | 21 Oct | *The Anarchy* by William Dalrymple |   Christine M  |  Janeane |  History | 
 | 18 Nov|  *Where the Crawdads Sing* by Delia Owens |   Sue |   Marian V | Fiction | 
