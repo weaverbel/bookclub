@@ -11,7 +11,7 @@
 | 16 Sept | *Maus* by Art Spiegelman + *Can't We Talk about Something More Pleasant?* by Roz Chast |  Trish S |   Chris C |  Graphic works| 
 | 21 Oct | *The Anarchy* by William Dalrymple |   Christine M  |  Janeane |  History | 
 | 18 Nov|  *Where the Crawdads Sing* by Delia Owens |   Sue |   Marian V | Fiction | 
-| 5 Dec |     Christmas Party at Angela's | Angela | This is a Saturday night | Cost TBD |
+| 5 Dec |     Christmas Party at Angela's | This is a Saturday night | Angela | Cost TBD |
 
 
 **Off-piste - other ideas for 2020 reading tnhat did not make the cut:**
