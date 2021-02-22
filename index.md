@@ -21,9 +21,17 @@
 | :---: | --- | :---: | :---:| 
 | *The Sandpit* by Nicholas Shakespeare | Belinda | Quasi-sequel to *The Dancer Upstairs* and a cracking mystery | Fiction |
 | *Redhead by the Side of the Road* by Anne Tyler | Trish S, Belinda | Genuinely wry and amusing | Fiction |
-| *Shuggie Bain* by Douglas Stuart | Trish S | 2020 Booker prize winner and a harrowing read superbly written, could only have been written by someone with firsthand experience of alcoholism and apparently it is autobiographical | Fiction |
+| *Shuggie Bain* by Douglas Stuart | Trish S | "2020 Booker prize winner and a harrowing read superbly written, could only have been written by someone with firsthand experience of alcoholism and apparently it is autobiographical" | Fiction |
 | *Box 88* by Charles Cumming | Trish S | "With an endorsement by Mike Herron has to be good" | Fiction |
 | *With my Little Eye* by Sandra Hogan | Belinda| About a family of kids raised by ASIO spies | Biography |
+| *Trio* by William Boyd | Belinda | Set on a film set in the 60s in Brighton, this is about three people figuring our if life is worth living | Fiction |
+| *Mantel Pieces* by Hilary Mantel | Belinda | Bits and bobs of reviews and writings from many years | Non-fiction |
+| *Face it* by Debbie Harry | Belinda | autobiography from Blondie lead singer | Biography |
+| *Mx Libris: 100+ books to read and re-read* by Michiko Katutani | Belinda | lists | Non-fiction |
+| *The cold millions* by Jess Walter | Belinda | this got a really good rap in the Readings/Gleebooks list - a US depression era story | Fiction |
+| *Unquiet* by Linn Ullman | Belinda | About Ingmar Bergman and Liv Ullman's relationship | Non-fiction |
+| *Son of the brush* by Tim Olsen | Belinda | He is the son of John Olsen | Non-fiction |
+| *An unconventional wife* by Mary Hoban | Belinda | the life of Julia Sorell Arnold, a colonial belle of the 19th century on Hobart | Biography |
 
 
 ## 2020 Book Club Reading
