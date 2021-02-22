@@ -1,3 +1,31 @@
+## 2021 Book Club Reading
+
+| **Date** |  **Book** | **Reviewer** |**Host**| **Type** |
+| :---: | --- | :---: | :---:| :---: |
+| 17 March | *The Godmother*  by Hannelore Cayre| Angela | Belinda | Fiction  | 
+| 21 April |  *Rodham*  by Curtis Sittenfeld |  Marian V | Belinda | Fiction  |  
+| 19 May |  *Hamnet* by Maggie O’Farrell | Bev  | Elizabeth | Fiction | 
+| 16 June | *The Golden Maze* by Richard Fidler | Angela | Chris C| Non-fiction|
+| 21 July | *All our Shimmering Skies* by Trent Dalton | Sue | Trish R | Fiction | 
+| 18 Aug |  *Enid: the scandalous life of a glamorous Australian who
+dazzled the world* by Robert Wainwright |  Gabrielle |   Chris M  | Biography | 
+| 15 Sept | *Apeirogon* by Colum McCann |  Trish S |   Judy |  Fiction | 
+| 20 Oct | *Mongamy* by Sue Miller |   Jo |  Janeane |  Fiction | 
+| 17 Nov|  *The Dictionary of Lost Words* by Pip Williams |   TBD |   Marian V | Non-fiction | 
+| 4 Dec |     Christmas Party  | This is a Saturday night | TBD | Cost TBD |
+
+
+**Off-piste - other ideas for 2021 reading that did not make the cut:**
+
+|  **Book** | **Recommended by** |**Notes**| **Genre** |
+| :---: | --- | :---: | :---:| 
+| *The Sandpit* by Nicholas Shakespeare | Belinda | Quasi-sequel to *The Dancer Upstairs* and a cracking mystery | Fiction |
+| *Redhead by the Side of the Road* by Anne Tyler | Trish S, Belinda | Genuinely wry and amusing | Fiction |
+| *Shuggie Bain* by Douglas Stuart | Trish S | 2020 Booker prize winner and a harrowing read superbly written, could only have been written by someone with firsthand experience of alcoholism and apparently it is autobiographical | Fiction |
+| *Box 88* by Charles Cumming | Trish S | "With an endorsement by Mike Herron has to be good" | Fiction |
+| *With my Little Eye* by Sandra Hogan | Belinda| About a family of kids raised by ASIO spies | Biography |
+
+
 ## 2020 Book Club Reading
 
 | **Date** |  **Book** | **Reviewer** |**Host**| **Type** |
