@@ -7,8 +7,7 @@
 | 19 May |  *Hamnet* by Maggie O’Farrell | Bev  | Elizabeth | Fiction | 
 | 16 June | *The Golden Maze* by Richard Fidler | Angela | Chris C| Non-fiction|
 | 21 July | *All our Shimmering Skies* by Trent Dalton | Sue | Trish R | Fiction | 
-| 18 Aug |  *Enid: the scandalous life of a glamorous Australian who
-dazzled the world* by Robert Wainwright |  Gabrielle |   Chris M  | Biography | 
+| 18 Aug |  *Enid: the scandalous life of a glamorous Australian who dazzled the world* by Robert Wainwright |  Gabrielle |   Chris M  | Biography | 
 | 15 Sept | *Apeirogon* by Colum McCann |  Trish S |   Judy |  Fiction | 
 | 20 Oct | *Mongamy* by Sue Miller |   Jo |  Janeane |  Fiction | 
 | 17 Nov|  *The Dictionary of Lost Words* by Pip Williams |   TBD |   Marian V | Non-fiction | 
