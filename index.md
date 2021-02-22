@@ -25,14 +25,14 @@
 | *Box 88* by Charles Cumming | Trish S | "With an endorsement by Mike Herron has to be good" | Fiction |
 | [*A Dominant Character: The Radical Science and Restless Politics of J. B. S. Haldane*](https://www.abc.net.au/radionational/programs/latenightlive/the-problematic-polymath-that-was-j.b.s.-haldane/12621498) by Samanth Subramanian | Christine M | Biography of Haldane - have linked to ABC podcast about it | Biography |
 | *With my Little Eye* by Sandra Hogan | Belinda| About a family of kids raised by ASIO spies | Biography |
-| *Trio* by William Boyd | Belinda | Set on a film set in the 60s in Brighton, this is about three people figuring our if life is worth living | Fiction |
-| *Mantel Pieces* by Hilary Mantel | Belinda | Bits and bobs of reviews and writings from many years | Non-fiction |
-| *Face it* by Debbie Harry | Belinda | autobiography from Blondie lead singer | Biography |
-| *Mx Libris: 100+ books to read and re-read* by Michiko Katutani | Belinda | lists | Non-fiction |
+| *Trio* by William Boyd | Belinda | Set on a film set in the 60s in Brighton, this is about three people figuring out if life is worth living | Fiction |
+| *Mantel Pieces* by Hilary Mantel | Belinda | Reviews and writings from many years | Non-fiction |
+| *Face it* by Debbie Harry | Belinda | Autobiography from Blondie lead singer | Biography |
+| *Mx Libris: 100+ books to read and re-read* by Michiko Katutani | Belinda | One of those lists books | Non-fiction |
 | *The cold millions* by Jess Walter | Belinda | this got a really good rap in the Readings/Gleebooks list - a US depression era story | Fiction |
-| *Unquiet* by Linn Ullman | Belinda | About Ingmar Bergman and Liv Ullman's relationship | Non-fiction |
-| *Son of the brush* by Tim Olsen | Belinda | He is the son of John Olsen | Non-fiction |
-| *An unconventional wife* by Mary Hoban | Belinda | the life of Julia Sorell Arnold, a colonial belle of the 19th century on Hobart | Biography |
+| *Unquiet* by Linn Ullman | Belinda | About Ingmar Bergman and Liv Ullman's complicated relationship | Non-fiction |
+| *Son of the brush* by Tim Olsen | Belinda | The son of John Olsen and this is about all his travails ... | Non-fiction |
+| *An unconventional wife* by Mary Hoban | Belinda | The life of Julia Sorell Arnold, a colonial belle of the 19th century on Hobart | Biography |
 
 
 ## 2020 Book Club Reading
