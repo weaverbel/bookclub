@@ -2,7 +2,7 @@
 
 | **Date** |  **Book** | **Reviewer** |**Host**| **Type** |
 | :---: | --- | :---: | :---:| :---: |
-| 17 March | *The Godmother*  by Hannelore Cayre| Angela | Belinda | Fiction  | 
+| 17 March | *The Godmother*  by Hannelore Cayre| Belinda | Angela | Fiction  | 
 | 21 April |  *Rodham*  by Curtis Sittenfeld |  Marian V | Belinda | Fiction  |  
 | 19 May |  *Hamnet* by Maggie O’Farrell | Bev  | Elizabeth | Fiction | 
 | 16 June | *The Golden Maze* by Richard Fidler | Angela | Chris C| Non-fiction|
