@@ -23,7 +23,7 @@
 | *Redhead by the Side of the Road* by Anne Tyler | Trish S, Belinda | Genuinely wry and amusing | Fiction |
 | *Shuggie Bain* by Douglas Stuart | Trish S | "2020 Booker prize winner and a harrowing read superbly written, could only have been written by someone with firsthand experience of alcoholism and apparently it is autobiographical" | Fiction |
 | *Box 88* by Charles Cumming | Trish S | "With an endorsement by Mike Herron has to be good" | Fiction |
-| [*A Dominant Character: The Radical Science and Restless Politics of J. B. S. Haldane*](https://www.abc.net.au/radionational/programs/latenightlive/the-problematic-polymath-that-was-j.b.s.-haldane/12621498) by Samanth Subramanian | Christime M | Biography of J.B.S. Haldane | Biography |
+| [*A Dominant Character: The Radical Science and Restless Politics of J. B. S. Haldane*](https://www.abc.net.au/radionational/programs/latenightlive/the-problematic-polymath-that-was-j.b.s.-haldane/12621498) by Samanth Subramanian | Christine M | Biography of Haldane - have linked to ABC podcast about it | Biography |
 | *With my Little Eye* by Sandra Hogan | Belinda| About a family of kids raised by ASIO spies | Biography |
 | *Trio* by William Boyd | Belinda | Set on a film set in the 60s in Brighton, this is about three people figuring our if life is worth living | Fiction |
 | *Mantel Pieces* by Hilary Mantel | Belinda | Bits and bobs of reviews and writings from many years | Non-fiction |
