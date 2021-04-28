@@ -4,14 +4,14 @@
 | :---: | --- | :---: | :---:| :---: |
 | 17 March | *The Godmother*  by Hannelore Cayre| Belinda | Angela | Fiction  | 
 | 21 April |  *Rodham*  by Curtis Sittenfeld |  Marian V | Belinda | Fiction  |  
-| 19 May |  *Hamnet* by Maggie O’Farrell | Bev  | Elizabeth | Fiction | 
-| 16 June | *The Golden Maze* by Richard Fidler | Angela | Chris C| Non-fiction|
+| 19 May |  *Hamnet* by Maggie O'Farrell | Bev  | Elizabeth | Fiction | 
+| 16 June | *Becoming Beauvoir* by Kate Kirkpatrick | Elizabeth | Chris C| Non-fiction|
 | 21 July | *All our Shimmering Skies* by Trent Dalton | Sue | Trish R | Fiction | 
 | 18 August |  *Enid: the scandalous life of a glamorous Australian who dazzled the world* by Robert Wainwright |  Gabrielle |   Chris M  | Biography | 
 | 15 September | *Apeirogon* by Colum McCann |  Trish S |   Judy |  Fiction | 
 | 20 October | *Mongamy* by Sue Miller |   Jo |  Janeane |  Fiction | 
 | 17 November |  *The Dictionary of Lost Words* by Pip Williams |   TBD |   Marian V | Non-fiction | 
-| 4 December |   Christmas Party  | This is a Saturday night | TBD | Cost TBD |
+| 4 December |   Christmas Lunch | Saturday  | Spirit House, Yandina | Cost $115 pp|
 
 
 
