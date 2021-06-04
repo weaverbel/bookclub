@@ -5,7 +5,7 @@
 | 17 March | *The Godmother*  by Hannelore Cayre| Belinda | Angela | Fiction  | 
 | 21 April |  *Rodham*  by Curtis Sittenfeld |  Marian V | Belinda | Fiction  |  
 | 19 May |  *Hamnet* by Maggie O'Farrell | Bev  | Elizabeth | Fiction | 
-| 16 June | *Becoming Beauvoir* by Kate Kirkpatrick | Elizabeth | Chris C| Non-fiction|
+| 16 June | *Becoming Beauvoir* by Kate Kirkpatrick | Elizabeth | Jo | Non-fiction|
 | 21 July | *All our Shimmering Skies* by Trent Dalton | Sue | Trish R | Fiction | 
 | 18 August |  *Enid: the scandalous life of a glamorous Australian who dazzled the world* by Robert Wainwright |  Gabrielle |   Chris M  | Biography | 
 | 15 September | *Apeirogon* by Colum McCann |  Trish S |   Judy |  Fiction | 
