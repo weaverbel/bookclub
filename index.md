@@ -11,7 +11,7 @@
 | 15 September | *Apeirogon* by Colum McCann |  Trish S |   Judy |  Fiction | 
 | 20 October | *Mongamy* by Sue Miller |   Jo |  Janeane |  Fiction | 
 | 17 November |  *The Dictionary of Lost Words* by Pip Williams |   TBD |   Marian V | Non-fiction | 
-| 4 December |   Christmas Lunch | Saturday  | Spirit House, Yandina | Cost $115 pp|
+| 4 December |   Christmas Lunch | Saturday  | Moreton Club | Cost $TBA |
 
 
 
