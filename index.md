@@ -6,13 +6,13 @@
 | 16 March | *The Labyrinth*  by Amanda Lohrey | Bev | Judy | Fiction  | 
 | 20 April |  *American Dirt*  by Jeanine Cummins |  Ange | Gilda | Fiction  |  
 | 18 May |  *Apples Never Fall* by Liane Moriarty | Sue | Marian V | Fiction | 
-| 15 June | *River Kings* by Cat Jarman | Amanda | Trish S | Non-fiction |
+| 15 June | *River Kings: A New History of the Vikings from Scandanavia to the Silk Road* by Cat Jarman | Amanda | Trish S | Non-fiction |
 | 20 July | *Fury* by Kathryn Heyman | Trish S | Marion B | Memoir | 
-| 17 August |  *Leaping into Waterfalls* by Bernadette Brennan |  Gabrielle |   Chris C | Biography | 
+| 17 August |  *Leaping into Waterfalls: The enigmatic Gillian Mears* by Bernadette Brennan |  Gabrielle |   Chris C | Biography | 
 | 21 September | *The Magician* by Colm Toibin |  Belinda |   Jo |  Biography | 
 | 19 October | *Being Mortal* by Atul Gawande |   Janeane | Jane   |  Non-fiction | 
 | 16 November |  *Letters to Camondo* by Edmund de Waal |   Marion B |   Chris M | Non-fiction | 
-| 16 November |  *Drive your plow over the bones of the dead* by Olga Tokarczuk |   Judy |   Chris M | Fiction | 
+| 16 November |  *Drive Your Plow Over the Bones of the Dead* by Olga Tokarczuk |   Judy |   Chris M | Fiction | 
 | 3 December |   Christmas do | Saturday  | TBA | Cost $TBA |
 
 
