@@ -15,6 +15,21 @@
 | 16 November |  *Drive Your Plow Over the Bones of the Dead* by Olga Tokarczuk |   Judy |   Chris M | Fiction | 
 | 3 December |   Christmas do | Saturday  | TBA | Cost $TBA |
 
+**Off-piste - other ideas for 2022 reading that did not make the cut:**
+
+|  **Book** | **Recommended by** |**Notes**| **Genre** |
+| :---: | --- | :---: | :---:| 
+| *Sister Stardust* by Jane Green | Elizabeth | Fictional account of Talitha Getty - Francesca's first project! | Fiction |
+| *The Lincoln Highway* by Amor Towles | Judy | New book from author of *A Gentleman in Moscow* | Fiction |
+| *Everyone knows your mother is a witch* by Rifka Galchen | Chris C | Based on the real world witchcraft trial of Katharina Kepler, mother of astronomer Johannes Kepler | Fiction |
+| *The Bitcoin Standard: The Decentralized Alternative to Central Banking* by Saifedean Ammous | Marion | All about bitcoin | Non-fiction |
+| *Crossroads* by Jonathan Franzen | Jo | New book | Fiction |
+| *The Ottomans: Khans, Caesars and Caliphs* by Marc David Baer | Belinda | History of the Ottoman empire | Non-fiction |
+| *The Origins of Sicily* by Jamie Mackey | Belinda | History of Sicily from earliest times | Non-fiction |
+| *Devotion* by Hannah Kent | ? | New book from author of *Burial Rites* | Fiction |
+| *Still Life* by Sarah Winman | Jo | A story of people brought together by love, war, art, flood and the ghost of E. M. Forster | Fiction |
+| *Cloud Cuckoo Land* by Anthony Doerr | Jo | New book from author of *All the light we cannot see* | Fiction |
+
 
 ## 2021 Book Club Reading
 
