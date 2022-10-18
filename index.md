@@ -10,7 +10,7 @@
 | 20 July | *Fury* by Kathryn Heyman | Trish S | Marion B | Memoir | 
 | 17 August |  *Leaping into Waterfalls: The enigmatic Gillian Mears* by Bernadette Brennan |  Gabrielle |   Gabrielle | Biography | 
 | 21 September | *The Magician* by Colm Toibin |  Belinda |   Jo |  Fiction | 
-| 19 October | *Being Mortal* by Atul Gawande |   Janeane | Jane   |  Non-fiction | 
+| 19 October | *Being Mortal* by Atul Gawande |   Janeane | Belinda   |  Non-fiction | 
 | 16 November |  *Letters to Camondo* by Edmund de Waal |   Marion B |   Chris M | Non-fiction | 
 | 16 November |  *Drive Your Plow Over the Bones of the Dead* by Olga Tokarczuk |   Judy |   Chris M | Fiction | 
 | 3 December |   Christmas do | Saturday  | TBA | Cost $TBA |
