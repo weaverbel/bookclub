@@ -42,7 +42,7 @@
 | 21 July | *All our Shimmering Skies* by Trent Dalton | Sue | Trish R | Fiction | 
 | 18 August |  *Enid: the scandalous life of a glamorous Australian who dazzled the world* by Robert Wainwright |  Gabrielle |   Chris M  | Biography | 
 | 15 September | *Apeirogon* by Colum McCann |  Trish S |   Judy |  Fiction | 
-| 20 October | *Mongamy* by Sue Miller |   Jo |  Janeane |  Fiction | 
+| 20 October | *Monogamy* by Sue Miller |   Jo |  Janeane |  Fiction | 
 | 17 November |  *The Dictionary of Lost Words* by Pip Williams |   TBD |   Marian V | Non-fiction | 
 | 4 December |   Christmas Lunch | Saturday  | Moreton Club | Cost $TBA |
 
