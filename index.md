@@ -29,7 +29,7 @@
 - Rick Mortion: *Growing up in Country Australia* - an anthology of stories    
 - Douglas Rushkoff: *Survival of the Richest* - all about **The Mindset** - how the tech elite (like Peter Thiel) think they can avoid societal catastrophe
 - Peter Watson: *The French Mind* - why the French are the way they are - history, politics, philosophy, food and more
-
+- Dominic Smith: *The Beautiful Miscellaneous* - new novel by the author of *The Last Painting of Sarah de Vos*.
 
 ## 2022 Book Club Reading
 
