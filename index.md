@@ -5,7 +5,7 @@
 | :---: | --- | :---: | :---:| :---: |
 | 15 March | *Lessons in Chemistry*  by Bonnie Garmus | Janeane | Sue | Fiction  | 
 | 19 April |  *Act of Oblivion*  by Robert Harris |  TBA | TBA | Fiction  |  
-| 17 May |  *Shirley Hazzard: A writing Life* by Brigitta Olubas | Belinda | TBA | Biography | 
+| 17 May |  *Shirley Hazzard: A Writing Life* by Brigitta Olubas | Belinda | TBA | Biography | 
 | 21 June | *The Romantic* by William Boyd | TBA | TBA | Fiction |
 | 19 July | *Demon Copperhead* by Barbara Kingsolver | TBA| Amanda | Fiction | 
 | 23 August ~ |  *The Plague* by Albert Camus |  Belinda |   TBA | Fiction | 
@@ -17,9 +17,19 @@
 ~ *Later week because of Ekka Public Holiday.*
 
 **Off-piste - other ideas for 2023 reading that did not make the cut:**
-Alan Atkinson: *Elizabeth and John* - biography of the Macarthurs
-Max Chafkin: *The Contrarian* - biography of Peter Thiel, billionaire tech entrpereneur
-Alan Rickman: *Madly, Deeply: The Alan Rickman Diaries*
+
+- Simon Sebag Montefiore: *The World: A Family History* - history of the world told through the stories of certain familiies    
+- Alan Atkinson: *Elizabeth and John* - joint biography of the Macarthurs   
+- Max Chafkin: *The Contrarian* - biography of Peter Thiel, billionaire tech entrepreneur who founded PayPal and has since gone very Trumpian   
+- Alan Rickman: *Madly, Deeply: The Alan Rickman Diaries*   
+- Michiko Kakutami: *Ex Libris* - essays on literature by ex-*NYT* columnist   
+- Maggie O'Farrell: *The Marriage Portrait* - new novel about Lucrezia Borgia by the author of *Hamnet*      
+- Amy Odell: *Anna: The biography* - biography of Anna Wintour of *Vogue*   
+- Edward Enninful: *A Visible Man* - autobiography of black, gay, Ghanaian-born editor of British *Vogue*   
+- Rick Mortion: *Growing up in Country Australia* - an anthology of stories    
+- Douglas Rushkoff: *Survival of the Richest* - all about **The Mindset** - how the tech elite (like Peter Thiel) think they can avoid societal catastrophe
+- Peter Watson: *The French Mind* - why the French are the way they are - history, politics, philosophy, food and more
+
 
 ## 2022 Book Club Reading
 
