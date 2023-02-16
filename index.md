@@ -4,7 +4,7 @@
 | **Date** |  **Book** | **Reviewer** |**Host**| **Type** |
 | :---: | --- | :---: | :---:| :---: |
 | 15 March | *Lessons in Chemistry*  by Bonnie Garmus | Janeane | Sue | Fiction  | 
-| 19 April |  *Act of Oblivion*  by Robert Harris |  TBA | TBA | Fiction  |  
+| 19 April |  *Act of Oblivion*  by Robert Harris |  Chris C | TBA | Fiction  |  
 | 17 May |  *Shirley Hazzard: A Writing Life* by Brigitta Olubas | Belinda | TBA | Biography | 
 | 21 June | *The Romantic* by William Boyd | TBA | TBA | Fiction |
 | 19 July | *Demon Copperhead* by Barbara Kingsolver | TBA| Amanda | Fiction | 
