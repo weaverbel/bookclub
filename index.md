@@ -1,3 +1,26 @@
+## 2023 Book Club Reading
+
+
+| **Date** |  **Book** | **Reviewer** |**Host**| **Type** |
+| :---: | --- | :---: | :---:| :---: |
+| 15 March | *Lessons in Chemistry*  by Bonnie Garmus | Janeane | Sue | Fiction  | 
+| 19 April |  *Act of Oblivion*  by Robert Harris |  TBA | TBA | Fiction  |  
+| 17 May |  *Shirley Hazzard: A writing Life* by Brigitta Olubas | Belinda | TBA | Biography | 
+| 21 June | *The Romantic* by William Boyd | TBA | TBA | Fiction |
+| 19 July | *Demon Copperhead* by Barbara Kingsolver | TBA| Amanda | Fiction | 
+| 23 August ~ |  *The Plague* by Albert Camus |  Belinda |   TBA | Fiction | 
+| 20 September | *Wifedom* by Anna Funder |  Sue |   Bev |  Fiction | 
+| 18 October | *Crossroads* by Jonathan Franzen |  Gabrielle  | Janeane   |  Fiction | 
+| 15 November |  *Booth* by Karen Joy Fowler |   TBA |   Jo | Non-fiction | 
+| 2 December |   Christmas do | Saturday  | TBA | Cost $TBA |
+
+~ *Later week because of Ekka Public Holiday.*
+
+**Off-piste - other ideas for 2023 reading that did not make the cut:**
+Alan Atkinson: *Elizabeth and John* - biography of the Macarthurs
+Max Chafkin: *The Contrarian* - biography of Peter Thiel, billionaire tech entrpereneur
+Alan Rickman: *Madly, Deeply: The Alan Rickman Diaries*
+
 ## 2022 Book Club Reading
 
 
