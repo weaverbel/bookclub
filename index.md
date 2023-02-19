@@ -6,7 +6,7 @@
 | 15 March | *Lessons in Chemistry*  by Bonnie Garmus | Janeane | Sue | Fiction  | 
 | 19 April |  *Act of Oblivion*  by Robert Harris |  Chris C | Ange | Fiction  |  
 | 17 May |  *Shirley Hazzard: A Writing Life* by Brigitta Olubas | Belinda | TBA | Biography | 
-| 21 June | *The Romantic* by William Boyd | TBA | Trish R | Fiction |
+| 21 June | *The Romantic* by William Boyd | TBA | Trish S | Fiction |
 | 19 July | *Demon Copperhead* by Barbara Kingsolver |  Bev | Amanda | Fiction | 
 | 23 August ~ |  *The Plague* by Albert Camus |  Belinda |   TBA | Fiction | 
 | 20 September | *Wifedom* by Anna Funder |  Sue |   Bev |  Fiction | 
@@ -30,6 +30,7 @@
 - Douglas Rushkoff: *Survival of the Richest* - all about **The Mindset** - how the tech elite (like Peter Thiel) think they can avoid societal catastrophe
 - Peter Watson: *The French Mind* - why the French are the way they are - history, politics, philosophy, food and more
 - Dominic Smith: *The Beautiful Miscellaneous* - new novel by the author of *The Last Painting of Sarah de Vos*.
+- Violet Moller: *The Map of Knowledge: how classical ideas were lost and found - a history in seven cities*   
 
 ## 2022 Book Club Reading
 
