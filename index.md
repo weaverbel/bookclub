@@ -8,7 +8,7 @@
 | 17 May |  *Shirley Hazzard: A Writing Life* by Brigitta Olubas | Belinda | TBA | Biography | 
 | 21 June | *The Romantic* by William Boyd | TBA | Trish S | Fiction |
 | 19 July | *Demon Copperhead* by Barbara Kingsolver |  Bev | Amanda | Fiction | 
-| 23 August ~ |  *The Plague* by Albert Camus |  Belinda |   TBA | Fiction | 
+| 23 August ~ |  *The Plague* by Albert Camus |  Belinda |   Marian | Fiction | 
 | 20 September | *Wifedom* by Anna Funder |  Sue |   Bev |  Fiction | 
 | 18 October | *Crossroads* by Jonathan Franzen |  Gabrielle  | Janeane   |  Fiction | 
 | 15 November |  *Booth* by Karen Joy Fowler |   Trish S |   Jo | Non-fiction | 
