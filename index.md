@@ -11,7 +11,7 @@
 | 23 August ~ |  *The Plague* by Albert Camus |  Belinda |   TBA | Fiction | 
 | 20 September | *Wifedom* by Anna Funder |  Sue |   Bev |  Fiction | 
 | 18 October | *Crossroads* by Jonathan Franzen |  Gabrielle  | Janeane   |  Fiction | 
-| 15 November |  *Booth* by Karen Joy Fowler |   TBA |   Jo | Non-fiction | 
+| 15 November |  *Booth* by Karen Joy Fowler |   Trish S |   Jo | Non-fiction | 
 | 2 December |   Christmas do | Saturday  | TBA | Cost $TBA |
 
 ~ *Later week because of Ekka Public Holiday.*
