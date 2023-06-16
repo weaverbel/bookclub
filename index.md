@@ -6,7 +6,7 @@
 | 15 March | *Lessons in Chemistry*  by Bonnie Garmus | Janeane | Sue | Fiction  | 
 | 19 April |  *Act of Oblivion*  by Robert Harris |  Chris C | Ange | Fiction  |  
 | 17 May |  *Shirley Hazzard: A Writing Life* by Brigitta Olubas | Belinda | TBA | Biography | 
-| 21 June | *The Romantic* by William Boyd | TBA | Trish S | Fiction |
+| 21 June | *The Romantic* by William Boyd | Marion B | Trish S | Fiction |
 | 19 July | *Demon Copperhead* by Barbara Kingsolver |  Bev | Amanda | Fiction | 
 | 23 August ~ |  *The Plague* by Albert Camus |  Belinda |   Marian | Fiction | 
 | 20 September | *Wifedom* by Anna Funder |  Sue |   Bev |  Fiction | 
