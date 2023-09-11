@@ -10,7 +10,7 @@
 | 19 July | *Demon Copperhead* by Barbara Kingsolver |  Bev | Amanda | Fiction | 
 | 23 August ~ |  *The Plague* by Albert Camus |  Belinda |   Marian | Fiction | 
 | 20 September | *Wifedom* by Anna Funder |  Sue |   Bev |  Fiction | 
-| 18 October | *Tom Lake* by Ann Patchett |  Gabrielle  | Janeane   |  Fiction | 
+| 18 October | *Tom Lake* by Ann Patchett |  Jane C | Janeane   |  Fiction | 
 | 15 November |  *Booth* by Karen Joy Fowler |   Trish S |   Jo | Non-fiction | 
 | 2 December |   Christmas do | Saturday  | TBA | Cost $TBA |
 
