@@ -14,6 +14,17 @@
 | 20 November |  *Edenglassie* by Melissa Lucashenko |   Judy |   Jo | Fiction | 
 | 7 December |   Christmas do | Saturday  | TBA | Cost $TBA |
 
+**Off-piste - other ideas for 2022 reading that did not make the cut:**
+
+|  **Book** | **Recommended by** |**Notes**| **Genre** |
+| :---: | --- | :---: | :---:| 
+| *The Seventh Son* by Sebastian Faulks | Belinda | A novel about a tech billionaire altering the DNA of an IVF pregnancy | Fiction |
+| *Living with a Dead Language* by Ann Parry | Amanda | About learning Latin as an adult | Non-fiction |
+| *Unfinished Woman* by Robyn Davidson | Belinda | The author tries to come to terms with the effect of her mother's suicide when she was eight | Non-fiction |
+| *Nine Quarters of Jerusalem* by Matthew Teller | Jane | About the city | Non-fiction |
+| *A City with a River Problem* by Margaret Cook | Elizabeth | About Brisbane floods | Non-fiction |
+| *On Our Best Behaviour* by Elise Loehnen | Jane | About the price women pay to be 'good' | Non-fiction |
+| *Lola in the Mirror* by Trent Dalton | a few people | Newest book | Fiction |
 
 
 ## 2023 Book Club Reading
