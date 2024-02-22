@@ -14,7 +14,7 @@
 | 20 November |  *Edenglassie* by Melissa Lucashenko |   Judy |   Jo | Fiction | 
 | 7 December |   Christmas do | Saturday  | TBA | Cost $TBA |
 
-**Off-piste - other ideas for 2022 reading that did not make the cut:**
+**Off-piste - other ideas for 2024 reading that did not make the cut:**
 
 |  **Book** | **Recommended by** |**Notes**| **Genre** |
 | :---: | --- | :---: | :---:| 
