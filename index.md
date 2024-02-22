@@ -1,3 +1,21 @@
+## 2024 Book Club Reading
+
+
+| **Date** |  **Book** | **Reviewer** |**Host**| **Type** |
+| :---: | --- | :---: | :---:| :---: |
+| 20 March | *Small Things Like These* and *Foster* by Claire Keegan | Angela  | Janeane | Fiction  | 
+| 17 April |  *The Fraud*  by Zadie Smith | Jo| Chris C | Fiction  |  
+| 15 May |  *The Midnight Library* by Matt Haig | Trish S | Chris M | Fiction | 
+| 19 June | *The Bad Ass Librarians of Timbuktu* by Joshua Hammer | Marian V | Trish R | Non-fiction |
+| 17 July | *Seven Moons of Maali Almeida*  by Shehan Karunatilaka |  Bev | Marian V | Fiction | 
+| 21 August |  *Trust* by Hernan Diaz |  Belinda |   Belinda | Fiction | 
+| 18 September | *Return to Valetto* by Dominic Smith |  Sue |   Trish S |  Fiction | 
+| 16 October | *American Nations: A History of the Eleven Rival Regional Cultures of North America* by Colin Woodard |  Chris M | Judy   |  Non-fiction | 
+| 20 November |  *Edenglassie* by Melissa Lucashenko |   Judy |   Jo | Fiction | 
+| 7 December |   Christmas do | Saturday  | TBA | Cost $TBA |
+
+
+
 ## 2023 Book Club Reading
 
 
