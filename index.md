@@ -9,7 +9,7 @@
 | 19 June | *The Bad Ass Librarians of Timbuktu* by Joshua Hammer | Marian V | Trish R | Non-fiction |
 | 17 July | *Seven Moons of Maali Almeida*  by Shehan Karunatilaka |  Bev | Marian V | Fiction | 
 | 21 August |  *Trust* by Hernan Diaz |  Belinda |   Belinda | Fiction | 
-| 18 September | *Return to Valetto* by Dominic Smith |  Sue |   Trish S |  Fiction | 
+| 18 September | *Return to Valetto* by Dominic Smith |  Sue |   Belinda (was Trish S but she is ill) |  Fiction | 
 | 16 October | *American Nations: A History of the Eleven Rival Regional Cultures of North America* by Colin Woodard |  Chris M | Judy   |  Non-fiction | 
 | 20 November |  *Edenglassie* by Melissa Lucashenko |   Judy |   Jo | Fiction | 
 | 7 December |   Christmas do | Saturday  | TBA | Cost $TBA |
