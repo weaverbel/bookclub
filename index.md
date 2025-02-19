@@ -1,3 +1,32 @@
+## 2025 Book Club Reading
+
+
+| **Date** |  **Book** | **Reviewer** |**Host**| **Type** |
+| :---: | --- | :---: | :---:| :---: |
+| 19 March | *Orbital* by Samantha Harvey | Janeane  | Marian V?  | Fiction  | 
+| 16 April |  *Against the Loveless World*  by Susan Albuhawa |  Belinda | Chris C | Fiction  |  
+| 21 May |  *Chai Time at Cinnamon Gardens* by Shankari Chandran | Sue | Judy | Fiction | 
+| 18 June | *This is Happiness* by Niall Williams | Barielle? | Trish R | Fiction |
+| 16 July | *How to Hide an Empire*  by Baniel Immerwahr |  Trish S | Amanda | History | 
+| 20 August |  *The North Light* by ideo Yokoyama |  Chris C? |   Sue | Fiction | 
+| 17 September | *Paris in Ruins* by Sebastian Smee |  Judy |   Jo  |  History| 
+| 15 October | *Mr and Mrs Gould* by Grantlee Kieza  |  Elizabeth | Belinda   |  Non-fiction | 
+|19 November |  *Killing for Country* by David Marr |   Bev |   Gabrielle | History | 
+| 6 December |   Christmas do | Saturday  | TBA | Cost $TBA |
+
+**Off-piste - other ideas for 2024 reading that did not make the cut:**
+
+|  **Book** | **Recommended by** |**Notes**| **Genre** |
+| :---: | --- | :---: | :---:| 
+| *The Seventh Son* by Sebastian Faulks | Belinda | A novel about a tech billionaire altering the DNA of an IVF pregnancy | Fiction |
+| *Living with a Dead Language* by Ann Parry | Amanda | About learning Latin as an adult | Non-fiction |
+| *Unfinished Woman* by Robyn Davidson | Belinda | The author tries to come to terms with the effect of her mother's suicide when she was eight | Non-fiction |
+| *Nine Quarters of Jerusalem* by Matthew Teller | Jane | About the city | Non-fiction |
+| *A City with a River Problem* by Margaret Cook | Elizabeth | About Brisbane floods | Non-fiction |
+| *On Our Best Behaviour* by Elise Loehnen | Jane | About the price women pay to be 'good' | Non-fiction |
+| *Lola in the Mirror* by Trent Dalton | a few people | Newest book | Fiction |
+
+
 ## 2024 Book Club Reading
 
 
