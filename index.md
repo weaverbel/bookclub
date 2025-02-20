@@ -6,7 +6,7 @@
 | 19 March | *Orbital* by Samantha Harvey | Janeane  | Marian V?  | Fiction  | 
 | 16 April |  *Against the Loveless World*  by Susan Albuhawa |  Belinda | Chris C | Fiction  |  
 | 21 May |  *Chai Time at Cinnamon Gardens* by Shankari Chandran | Sue | Judy | Fiction | 
-| 18 June | *This is Happiness* by Niall Williams | Barielle? | Trish R | Fiction |
+| 18 June | *This is Happiness* by Niall Williams | Gabrielle? | Trish R | Fiction |
 | 16 July | *How to Hide an Empire*  by Daniel Immerwahr |  Trish S | Amanda | History | 
 | 20 August |  *The North Light* by Hideo Yokoyama |  Chris C? |   Sue | Fiction | 
 | 17 September | *Paris in Ruins* by Sebastian Smee |  Judy |   Jo  |  History| 
