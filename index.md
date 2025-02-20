@@ -20,9 +20,9 @@
 | :---: | --- | :---: | :---:| 
 | *Working or the Brand* by Josh Bornstein   | Belinda    |     Aussie book about corporations and free speech  |  NF    |
 | *My Roman Year* by Andre Aciman       |  Janeane   |   Set in the 1960s    |     Memoir |
-|   *All Fours* by Miranda July     |   Bev  |     Lust, lust and more lust  |    FNovel  |
-|   *James* by Percival Everett     |  Bev    |   The Huck Finn story reimagined from the slave's POV    |  Novel    |
-|     *Prophet Song* by Paul Lynch   |  Judy   |      Highly recommended by Judy |      Novel |
+|   *All Fours* by Miranda July     |   Bev  |     Lust, lust and even more lust  |    Novel  |
+|   *James* by Percival Everett     |  Bev    |   The Huck Finn story reimagined from the slave's point of view    |  Novel    |
+|     *Prophet Song* by Paul Lynch   |  Judy   |      Dystopian novel about Ireland slipping into totalitarianism |      Novel |
 |      *The Upstairs Delicatessen* by Dwight Gardner |    Bev |    NYT foodie book   |  NF    |
 |      *The Loom of Time* by Robert D. Kaplan |   Janeane |    History of the Middle East   |  NF    |
 
