@@ -18,7 +18,7 @@
 
 |  **Book** | **Recommended by** |**Notes**| **Genre** |
 | :---: | --- | :---: | :---:| 
-| *Working or the Brand* by Josh Bornstein   | Belinda    |     Aussie book about corporations and free speech  |  NF    |
+| *Working for the Brand* by Josh Bornstein   | Belinda    |     Aussie book about corporations and free speech  |  NF    |
 | *My Roman Year* by Andre Aciman       |  Janeane   |   Set in the 1960s    |     Memoir |
 |   *All Fours* by Miranda July     |   Bev  |     Lust, lust and even more lust  |    Novel  |
 |   *James* by Percival Everett     |  Bev    |   The Huck Finn story reimagined from the slave's point of view    |  Novel    |
