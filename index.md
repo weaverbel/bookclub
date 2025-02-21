@@ -11,7 +11,7 @@
 | 20 August |  *The North Light* by Hideo Yokoyama |  Chris C |   Sue | Fiction | 
 | 17 September | *Paris in Ruins* by Sebastian Smee |  Judy |   Jo  |  History| 
 | 15 October | *Mr and Mrs Gould* by Grantlee Kieza  |  Elizabeth | Belinda   |  Non-fiction | 
-|19 November |  *Killing for Country* by David Marr |   Bev |   Gabrielle? | History | 
+|19 November |  *Killing for Country* by David Marr |   Bev |   Gabrielle | History | 
 | 6 December |   Christmas do | Saturday  | TBA | Cost $TBA |
 
 **Off-piste - other ideas for 2025 reading that did not make the cut:**
