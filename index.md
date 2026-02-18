@@ -1,3 +1,32 @@
+## 2026 Book Club Reading
+
+
+| **Date** |  **Book** | **Reviewer** |**Host**| **Type** |
+| :---: | --- | :---: | :---:| :---: |
+| 18 March | *The Case Against the Sexual Revolution* by Louise Perry | Bev  | Gabrielle  | Non-fiction  | 
+| 15 April |  *Tenderfoot*  by Toni Jordan |  Janeane | Ange | Fiction  |  
+| 20 May |  *Proust and the Squid: The Story and Science of the Reading Brain* by Maryanne Wolf | Chris M | Chris M | Non-fiction | 
+| 17 June | *The True Story of Raja the gullible (and his mother)* by Rabih Alameddine | Jo | Belinda | Fiction |
+| 15 July | *Helm*  by Sarah Hall |  Marian V? |  Belinda | Fiction | 
+| 19 August |  *Mania* by Lionel Shriver |  Amanda |   Elizabeth | Fiction | 
+| 16 September | *The Loneliness of Sonia and Sammy* by Kiran Desai and Heart Lamp by Banu Mushtaq |  Marian V (Desai)     Ange (Mushtaq)|  Trish R  | Fiction | 
+| 21 October | *The Names* by Florence Knapp  | Gabrielle | Trish S   |  Fiction | 
+| 18 November |  *Patriot* by Alexei Navalny |   Trish S |   Bev | Non-fiction | 
+| 5 December |   Christmas do | Saturday  | Harvey's | Cost $TBA |
+
+**Off-piste - other ideas for 2025 reading that did not make the cut:**
+
+|  **Book** | **Recommended by** |**Notes**| **Genre** |
+| :---: | --- | :---: | :---:| 
+| *The Fate of Abraham: Why the West is Wrong about Islam* by Peter Oborne   | Belinda    |    Examines the treatment of Muslims in the USA, UK and France  |  NF    |
+| *Where My Heart Used to Beat* by Sebastian Faulks       |  Belinda   |   Fiction about family, memory and emotions   |     Fiction |
+|   *All Fours* by Miranda July     |   Bev  |     Lust, lust and even more lust  |    Novel  |
+|   *Hags: The Demonisation of Middle-Aged Women* by Victoria Smith     |  Bev    |   The title says it all!   |  Non-fiction    |
+|     *Eichmann in Jerusalem* by Hannah Arendt  |  Janeane   |      A report on the banality of evil |      Non fiction |
+|      *This Kingdom is Dust* by David Dyer |   Janeane |   About the Aldrin family around the time of the moon landing   |  Fiction   |
+|      *The Time of the Child* by Niall Williams |   Janeane |    We read his *This is Happiness* last year   |  Fiction    |
+
+
 ## 2025 Book Club Reading
 
 
