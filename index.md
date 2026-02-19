@@ -20,11 +20,15 @@
 | :---: | --- | :---: | :---:| 
 | *The Fate of Abraham: Why the West is Wrong about Islam* by Peter Oborne   | Belinda    |    Examines the treatment of Muslims in the USA, UK and France  |  NF    |
 | *Where My Heart Used to Beat* by Sebastian Faulks       |  Belinda   |   Fiction about family, memory and emotions   |     Fiction |
-|   *All Fours* by Miranda July     |   Bev  |     Lust, lust and even more lust  |    Novel  |
+|   *Mary Penfold* by Grantlee Kieza     |   Elizabeth  |     History of the winery but also of Australia, medicine etc  |    Non-fiction  |
 |   *Hags: The Demonisation of Middle-Aged Women* by Victoria Smith     |  Bev    |   The title says it all!   |  Non-fiction    |
 |     *Eichmann in Jerusalem* by Hannah Arendt  |  Janeane   |      A report on the banality of evil |      Non fiction |
 |      *This Kingdom is Dust* by David Dyer |   Janeane |   About the Aldrin family around the time of the moon landing   |  Fiction   |
-|      *The Time of the Child* by Niall Williams |   Janeane |    We read his *This is Happiness* last year   |  Fiction    |
+|      *Time of the Child* by Niall Williams |   Janeane |    We read his *This is Happiness* last year   |  Fiction    |
+|      *Glorious Exploits* by Ferdia Lennon|   Trish S |    About theatre by slaves in the ancient world   |  Fiction    |
+|      *Mother Mary Comes to Me* by Arundahati Roy |   Judy |   About her troubled relationship with her mother   | Memoir    |
+|      *The Friday Afternoon Club: A Family Memoir* by Griffin Dunne |   Jane |   The Dunnes and the Didions  |  Non-fiction    |
+|      *What We Can Know* by Ian McEwan |   Janeane |    Set 100 years in the future   |  Fiction    |
 
 
 ## 2025 Book Club Reading
