@@ -6,9 +6,9 @@
 | 18 March | *The Case Against the Sexual Revolution* by Louise Perry | Bev  | Gabrielle  | Non-fiction  | 
 | 15 April |  *Tenderfoot*  by Toni Jordan |  Janeane | Ange | Fiction  |  
 | 20 May |  *Proust and the Squid: The Story and Science of the Reading Brain* by Maryanne Wolf | Chris M | Chris M | Non-fiction | 
-| 17 June | *The True Story of Raja the Gullible (And his Mother)* by Rabih Alameddine | Jo | Belinda | Fiction |
-| 15 July | *Helm*  by Sarah Hall |  Belinda |   Marian V?| Fiction | 
-| 19 August |  *Mania* by Lionel Shriver |  Elizabeth |    Amanda | Fiction | 
+| 17 June | *The True Story of Raja the Gullible (And His Mother)* by Rabih Alameddine | Jo | Belinda | Fiction |
+| 15 July | *Helm*  by Sarah Hall |  Belinda |   Marian V? | Fiction | 
+| 19 August |  *A Better Life* by Lionel Shriver |  Elizabeth |    Amanda | Fiction | 
 | 16 September | *The Loneliness of Sonia and Sammy* by Kiran Desai and Heart Lamp by Banu Mushtaq |  Marian V (Desai),    Ange (Mushtaq)|  Trish R  | Fiction | 
 | 21 October | *The Names* by Florence Knapp  | Gabrielle | Trish S   |  Fiction | 
 | 18 November |  *Patriot* by Alexei Navalny |   Trish S |   Bev | Non-fiction | 
