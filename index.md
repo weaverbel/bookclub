@@ -9,7 +9,7 @@
 | 17 June | *The True Story of Raja the Gullible (And His Mother)* by Rabih Alameddine | Jo | Belinda | Fiction |
 | 15 July | *Helm*  by Sarah Hall |  Belinda |   Marian V? | Fiction | 
 | 19 August |  *A Better Life* by Lionel Shriver |  Elizabeth |    Amanda | Fiction | 
-| 16 September | *The Loneliness of Sonia and Sammy* by Kiran Desai and Heart Lamp by Banu Mushtaq |  Marian V (Desai),    Ange (Mushtaq)|  Trish R  | Fiction | 
+| 16 September | *The Loneliness of Sonia and Sammy* by Kiran Desai and *Heart Lamp* by Banu Mushtaq |  Marian V (Desai),    Ange (Mushtaq)|  Trish R  | Fiction | 
 | 21 October | *The Names* by Florence Knapp  | Gabrielle | Trish S   |  Fiction | 
 | 18 November |  *Patriot* by Alexei Navalny |   Trish S |   Bev | Non-fiction | 
 | 5 December |   Christmas do | Saturday  | Harvey's | Cost $TBA |
